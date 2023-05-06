@@ -7,4 +7,4 @@ seeking to avoid what is controlled by others, they will then be agitated, fearf
 
 —EPICTETUS, DISCOURSES, 2.1.12
 
-***Perspective: Serenity and stability are the result of our choices and judgement, not our environments.***
+***Perspective: Don't avoid life's events, stress or people, instead deal with them by avoiding disruptive and harmful judgements.***
