@@ -7,4 +7,4 @@ Not to uncontrollable externals, but within myself to the choices that are my ow
 
 —EPICTETUS, DISCOURSES, 2.5.4–5
 
-Perspective: Focus on things you have influence on, things you can change.
+# Perspective: Focus on things you have influence on, things you can change.
