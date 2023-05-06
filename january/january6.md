@@ -9,4 +9,4 @@ those who have no knowledge of where or who they are?”
 
 —MARCUS AURELIUS, MEDITATIONS, 8.52
 
-***Perspetcive: Unleash your true self, look deep in your heart, understand your character, be the main hero of your movie***
+***Perspetcive: Unleash your true self, look deep in your heart, understand your character, be the main hero of your movie.***
