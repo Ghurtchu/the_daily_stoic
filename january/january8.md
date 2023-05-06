@@ -6,4 +6,4 @@ Greatness of soul will be lost, which can’t stand out unless it disdains as pe
 
 —SENECA, MORAL LETTERS, 74.12b–13
 
-***Perspective: Drop your addictions to become yourself again***
+***Perspective: Drop your addictions to become yourself again.***
