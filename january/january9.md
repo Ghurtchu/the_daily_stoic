@@ -8,4 +8,4 @@ while those not in our control are weak, slavish, can be hindered, and are not o
 
 —EPICTETUS, ENCHIRIDION, 1.1–2
 
-***Perspective: A flight got cancelled? I bet the weather gives no shit about your opinion***
+***Perspective: A flight got cancelled? I bet the weather gives no shit about your opinion.***
