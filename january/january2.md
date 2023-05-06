@@ -9,4 +9,4 @@ but rather the lovers of wisdom who say that only the educated are free.”
 
 —EPICTETUS, DISCOURSES, 2.1.21–23a
 
-***Perspective: Educate yourself to become free, fear less and learn how to live properly. All knowledge but particularly self-knowledge is freedom***
+***Perspective: Educate yourself to become free, fear less and learn how to live properly. All knowledge but particularly self-knowledge is freedom.***
