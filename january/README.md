@@ -1,1 +1,1 @@
-# CLARITY
+# January - Clarity
