@@ -6,4 +6,4 @@ It’s not activity that disturbs people, but false conceptions of things that d
 
 —SENECA, ON TRANQUILITY OF MIND, 12.5
 
-***Perspective: Begin with the end in mind, plan things, avoid directionlessness***
+***Perspective: Begin with the end in mind, plan things, avoid directionlessness.***
