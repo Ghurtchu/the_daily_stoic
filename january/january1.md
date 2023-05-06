@@ -1,4 +1,4 @@
-**Control and Choice**
+# Control and Choice
 
 “The chief task in life is simply this: 
 To identify and separate matters so that I can say clearly to myself which are externals not under my control, 
@@ -7,4 +7,4 @@ Not to uncontrollable externals, but within myself to the choices that are my ow
 
 —EPICTETUS, DISCOURSES, 2.5.4–5
 
-# Perspective: Focus on things you have influence on, things you can change.
+***Perspective: Focus on things you have influence on, things you can change.***
