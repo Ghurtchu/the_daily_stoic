@@ -21,5 +21,5 @@ Nothing but its own corrupt decisions.”
 
 ***- Purpose = Having a guiding principle and the hierarchy of priorities;***
 
-***- Assent = to be free of deception about what’s inside and outside our control.***
+***- Assent = To be free of deception about what’s inside and outside our control.***
 
