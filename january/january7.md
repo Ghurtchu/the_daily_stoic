@@ -8,11 +8,11 @@ Nothing but its own corrupt decisions.”
 —EPICTETUS, DISCOURSES, 4.11.6–7
 
 ***Perspective:*** 
-*** - Choice = To do and think right;***
-*** - Refusal = Say no to temptation;***
-*** - Yearning = Willing of becoming better;***
-*** - Repulsion = Avoiding negativity, bad influences and lies;***
-*** - Preparation = Getting ready of what lies ahead or whatever may happen;***
-*** - Purpose = Having a guiding principle and the hierarchy of priorities;***
-*** - Assent = to be free of deception about what’s inside and outside our control.***
+***- Choice = To do and think right;***
+***- Refusal = Say no to temptation;***
+***- Yearning = Willing of becoming better;***
+***- Repulsion = Avoiding negativity, bad influences and lies;***
+***- Preparation = Getting ready of what lies ahead or whatever may happen;***
+***- Purpose = Having a guiding principle and the hierarchy of priorities;***
+***- Assent = to be free of deception about what’s inside and outside our control.***
 
