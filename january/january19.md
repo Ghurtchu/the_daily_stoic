@@ -1,4 +1,3 @@
-
 # Wherever you go, there your choice is
 
 “A podium and a prison is each a place, one high and the other low, but in either place your freedom of choice can be maintained if you so wish.”
