@@ -1,0 +1,7 @@
+# When you lose your control
+
+“The soul is like a bowl of water, and our impressions are like the ray of light falling upon the water. When the water is troubled, it appears that the light itself is moved too, but it isn’t. So, when a person loses their composure it isn’t their skills and virtues that are troubled, but the spirit in which they exist, and when that spirit calms down so do those things.”
+
+—EPICTETUS, DISCOURSES, 3.3.20–22
+
+***Perspective: Remember that the tools and aims of our training are unaffected by the turbulence of the moment. Stop. Regain your composure. It’s waiting for you.***
