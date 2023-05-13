@@ -1,0 +1,7 @@
+# Ready and at home
+
+“I may wish to be free from torture, but if the time comes for me to endure it, I’ll wish to bear it courageously with bravery and honor. Wouldn’t I prefer not to fall into war? But if war does befall me, I’ll wish to carry nobly the wounds, starvation, and other necessities of war. Neither am I so crazy as to desire illness, but if I must suffer illness, I’ll wish to do nothing rash or dishonorable. The point is not to wish for these adversities, but for the virtue that makes adversities bearable.”
+
+—SENECA, MORAL LETTERS, 67.4
+
+***Perspective: That’s what Seneca is saying here. We’d be crazy to want to face difficulty in life. But we’d be equally crazy to pretend that it isn’t going to happen. Which is why when it knocks on our door—as it very well may this morning—let’s make sure we’re prepared to answer. Not the way we are when a surprise visitor comes late at night, but the way we are when we’re waiting for an important guest: dressed, in the right head space, ready to go.***
