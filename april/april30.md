@@ -1,0 +1,13 @@
+# What is in keeping with your character?
+
+“Just as what is considered rational or irrational differs for each
+person, in the same way what is good or evil and useful or useless
+differs for each person. This is why we need education, so that we
+might learn how to adjust our preconceived notions of the rational
+and irrational in harmony with nature. In sorting this out, we don’t
+simply rely on our estimate of the value of external things, but
+also apply the rule of what is in keeping with one’s character.” 
+
+—EPICTETUS, DISCOURSES, 1.2.5–7
+
+***Perspective: Character is a powerful defense in a world that would love to be able to seduce you, buy you, tempt you, and change you. If you know what you believe and why you believe it, you’ll avoid poisonous relationships, toxic jobs, fair-weather friends, and any number of ills that afflict people who haven’t thought through their deepest concerns. That’s your education. That’s why you do this work.***
