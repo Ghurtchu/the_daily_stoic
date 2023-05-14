@@ -1,0 +1,7 @@
+# You are the project
+
+“The raw material for the work of a good and excellent person is their own guiding reason, the body is that of the doctor and the physical trainer, and the farm the farmer’s.”
+
+—EPICTETUS, DISCOURSES, 3.3.1
+
+***Perspective: Professionals don’t have to justify spending time training or practicing their work. It’s what they do, and practice is how they get good at it. The raw materials vary from career to career, just as the locations and duration vary depending on the person and the profession. But the one constant is the working of those materials, the gradual improvements and proficiency. According to the Stoics, your mind is the asset that must be worked on most—and understood best.***
