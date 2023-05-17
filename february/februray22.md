@@ -4,5 +4,4 @@
 
 —PLUTARCH, CATO THE YOUNGER, 4
 
-***Perspective: Instead, he waited and prepared. He parsed his own thoughts, made sure he was not reacting emotionally, selfishly, ignorantly, or prematurely. Only then would he speak—when he was confident that his words were worthy of being heard.
-To do this requires awareness. It requires us to stop and evaluate ourselves honestly. Can you do that?***
+***Perspective: Instead, he waited and prepared. He parsed his own thoughts, made sure he was not reacting emotionally, selfishly, ignorantly, or prematurely. Only then would he speak—when he was confident that his words were worthy of being heard. To do this requires awareness. It requires us to stop and evaluate ourselves honestly. Can you do that?***

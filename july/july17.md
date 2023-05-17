@@ -1,0 +1,7 @@
+# Don't abandon others or yourself
+
+“As you move forward along the path of reason, people will stand in your way. They will never be able to keep you from doing what’s sound, so don’t let them knock out your goodwill for them. Keep a steady watch on both fronts, not only for well-based judgments and actions, but also for gentleness with those who would obstruct our path or create other difficulties. For getting angry is also a weakness, just as much as abandoning the task or surrendering under panic. For doing either is an equal desertion— the one by shrinking back and the other by estrangement from family and friend.”
+
+—MARCUS AURELIUS, MEDITATIONS, 11.9
+
+***Perspective: Just as you must not abandon your new path simply because other people may have a problem with it, you must not abandon those other folks either. Don’t simply write them off or leave them in the dust. Don’t get mad or fight with them. After all, they’re at the same place you were not long ago.***

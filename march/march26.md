@@ -6,5 +6,4 @@ choice or not, is but a corpse and smoke.”
 
 —MARCUS AURELIUS, MEDITATIONS, 12.33
 
-
 ***Perspective: The Roman satirist Juvenal is famous for this question: Quis custodiet ipsos custodes? (Who watches the watchmen?) In a way, this is what Marcus is asking himself—and what you might ask yourself throughout the day. What influences the ruling reason that guides your life? This means an exploration of subjects like evolutionary biology, psychology, neurology, and even the subconscious. Because these deeper forces shape even the most disciplined, rational minds. You can be the most patient person in the world, but if science shows we make poor decisions on an empty stomach—what good is all that patience? So don’t stop at Stoicism, but explore the forces that drive and make Stoicism possible. Learn what underpins this philosophy you’re studying, how the body and mind tick. Understand not only your ruling reason—the watchmen—but whoever and whatever rules that too.***

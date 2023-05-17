@@ -4,4 +4,4 @@
 
 —MARCUS AURELIUS, MEDITATIONS, 8.41
 
-***Perspective: In outer space you develop an instant global consciousness, a people orientation, an intense dissatisfaction with the state of the world, and a compulsion to do something about it. From out there on the moon, international politics look so petty. You want to grab a politician by the scruff of the neck and drag him a quarter of a million miles out and say, ‘Look at that, you son of a bitch.***
+***Perspective: Part of this is remembering the usual course of things—Murphy’s Law states that “if anything can go wrong, it will.” So we keep this reverse clause handy because we know we’re probably going to have to use it. No one can thwart that.***
